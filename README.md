@@ -1,6 +1,6 @@
 ## Who is err0r4o3? 
 
-**Name**: Error_403 == Error403 == err0r4o3   
+**Name**: Error_403 == Error403 == 2rr0r4o3   
 **Job**: A students who plural majoring in Information and Communication Engineering and Computer Engineering at Sungkonghoe Univ since 2020
 **Location**: Seoul, Republic of Korea   
 **Site**: 2rr0r4o3.github.io 
